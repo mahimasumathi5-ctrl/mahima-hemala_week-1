@@ -1,1 +1,0 @@
-# mahima-hemala_week-1
